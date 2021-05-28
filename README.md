@@ -1,8 +1,16 @@
 # Personal-Diary
 
 
-
 # Welcome to my Personal Diary <img src="icon.png" width="60px"></h2>
+
+
+28th MAY 2021
+
+I still remember the insta story she uploaded after fresher's night in which Eshan was lifting her up and she wrote - "I like the way you grab me." I remember Amin showing me those prom night pics in which Eshan was kneeling down on his knees with a rose in his hand. And she was smiling, looking at him. I still remember Eshan holding her waist and resting his chin on her shoulder when she was just infront of me. She was also holding his hand which he had kept around her waist. I still remember numerous such incidents between her and Eshan. Does she knows how harassed I felt looking her like that ?
+
+
+
+2nd MAR 2021
 
 The love😍 I had
 
